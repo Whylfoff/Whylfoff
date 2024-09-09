@@ -1,1 +1,2 @@
 # glowing-octo-rotary-phone
+Hello everyone, my name is Danil. I'm from Russia. I'm seventeen years old. In this moment, i'm studying in the university (IKBFU), at first year. i like to play video games, read books, my favourite of them is "Can't hurt me" by David Goggins. I've been playing guitar for six years, listen to rock, indie, country, almost everything. I want to study in Austria and i am striving to that!
